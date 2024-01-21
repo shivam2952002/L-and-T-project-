@@ -1,2 +1,2 @@
 # L-and-T-project-
-Internship in L and T 
+Internship at L and T 
